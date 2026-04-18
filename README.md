@@ -1,0 +1,1 @@
+Van C, Mao PH, Nguyen J, Jung KJ, Sampath N, Miller RA, Wold LE, Chung D, Christman JW, Chung S (2026), "Electronic cigarette exposure elicits distinct inflammatory and remodeling responses in healthy- and asthma-derived human airway cultures"
